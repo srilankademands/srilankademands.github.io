@@ -7,7 +7,10 @@ layout: default
 
 * Appointment of the new CB Governor Dr. P. Nandalal Weerasinghe
 * Travel ban on Ajith Nivaad Cabral
-* Resignation of the Cabinet Ministers
+* Resignation of the Cabinet Ministers en masse
+* Resignation of Namal, Basil, Chamal and Shasheendra Rajapaksha from Ministerial Portfolios
+* Government lost the simple majority as 42 MPs chose to become independent
+* MPs Manusha Nanayakkara and Weerasumana Weerasinghe endorse audit of Parliamentarians assets by volunteering to be the first to be audited
 
 ### Demands by protests that are yet to be met
 
